@@ -12,8 +12,8 @@ Hey, I'm winfinwiotfgn, there's nothing really unique about me honestly. I'm a 1
 - harmful (status site) [in-progress]
 
 # Hall of Homies
-🏆 | OPW (@78kd)
-🏆 | clay (@123498763)
-🏆 | Feratium (@furatium)
-🏆 | A_I_X (@a_i_x32)
-🏆 | LifeyV2 (@lifeyv2)
+🏆 | OPW (@78kd) -
+🏆 | clay (@123498763) -
+🏆 | Feratium (@furatium) -
+🏆 | A_I_X (@a_i_x32) -
+🏆 | LifeyV2 (@lifeyv2) -
